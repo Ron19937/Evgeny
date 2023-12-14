@@ -51,5 +51,4 @@ https://www.notion.so/1-2-e345932552ed414c98fce0533ab9876b
 
 Контактная информация
 Email: ev-tischenko@mail.ru
-LinkedIn: 
 Личный сайт:https://vk.com/id68081513
